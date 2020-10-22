@@ -1,6 +1,3 @@
 # Soccer
-Soccer is awesome. 
-Ever since I played soccer when I was five years old, soccer has been my hobby.
-In primary school, I was in the Soccer CCA, I play soccer with my father every weekend, and I play soccer with my friends every month.
-Soccer isn't just a sport, you see.
-It's a opportunity where you make more friends, learn invaluable life lessons, and much more.
+soccer is awesome
+soccer is defined as the fine art of using legs to knock a round and spherical shape in to a box. Players run arnd the field in a pointless 80 min duration before declaring one a winner as the loser go home in shame and die in ed
